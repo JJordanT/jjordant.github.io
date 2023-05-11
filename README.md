@@ -1,1 +1,0 @@
-# jjordant.github.io
